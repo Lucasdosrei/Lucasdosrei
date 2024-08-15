@@ -1,4 +1,4 @@
-- oi, meu é Lucasdosreis
+- oi, meu nome é Lucasdosreis
 - estou interessado em passar na etec
 - estou cursando o E.S médio
 - tenho 15 anos, faço aniversário dia 11 de março 
